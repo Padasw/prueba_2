@@ -1,4 +1,6 @@
 # prueba_2
 Intro Github
 
-###hackWomen :)😍💖🐱‍🐉👼👼👼👼
+### HackWomen :)😍💖🐱‍🐉👼👼👼👼
+
+**Paasionate learner and teacher**
